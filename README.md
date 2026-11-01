@@ -226,4 +226,4 @@ Age of Empires II: Definitive Edition is available as a full free version, inclu
 Don't miss the chance to relive the classic strategy experience! Download Age of Empires II: Definitive Edition now and lead your empire to victory!
 
 ---
-**Last updated:** 2026-11-01 09:05:05 UTC
+**Last updated:** 2026-11-01 16:39:27 UTC
